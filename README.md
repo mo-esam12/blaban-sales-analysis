@@ -112,7 +112,7 @@ The dashboard includes:
 
 **Mohamed Esam Ragab**  
 Aspiring Data Analyst  
-[LinkedIn](linkedin.com/in/mohamed-esam) · [GitHub](https://github.com/mo-esam12)
+[LinkedIn](https://www.linkedin.com/in/mohamed-esam-48ba74241) · [GitHub](https://github.com/mo-esam12)
 
 ---
 
